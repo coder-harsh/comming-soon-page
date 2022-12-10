@@ -1,0 +1,1 @@
+#hi welcome to the default comming soon page for new domain
